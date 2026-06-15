@@ -1,7 +1,7 @@
-- Sou estudante:☝️🤓
-- Minha cor favorita é azul:🧿
-- Gosto de jogos indie:🧙‍♀️
-- gosto de jogos de terror e suspense:🤡
-- gosto de arte:🎨
-- ! [] (https://tenor.com/pt-BR/view/avril-lavigne-boo-gif-2690013621169395507)
+- Sou estudante:☝️🤓  
+- Minha cor favorita é azul:🧿  
+- Gosto de jogos indie:🧙‍♀️  
+- gosto de jogos de terror e suspense:🤡  
+- gosto de arte:🎨 
+- ![](https://tenor.com/pt-BR/view/avril-lavigne-boo-gif-2690013621169395507)
 - 
