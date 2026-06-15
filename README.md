@@ -3,5 +3,5 @@
 - Gosto de jogos indie:🧙‍♀️  
 - gosto de jogos de terror e suspense:🤡  
 - gosto de arte:🎨 
-- ![](https://tenor.com/pt-BR/view/avril-lavigne-boo-gif-2690013621169395507)
+- ![](https://media1.tenor.com/m/JVTZItrDlzMAAAAC/avril-lavigne-boo.gif)
 - 
